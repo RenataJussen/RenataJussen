@@ -9,3 +9,6 @@ Meu nome é Renata Jussen
 ### Você pode entrar em contato comigo 📫
 
 renata.jussen@escola.pr.gov.br
+
+
+![image](https://github.com/RenataJussen/RenataJussen/assets/143616200/834c26d7-2e44-4c4c-946a-618ec5b0a337)
