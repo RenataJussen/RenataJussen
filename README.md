@@ -11,4 +11,4 @@ Meu nome é Renata Jussen
 renata.jussen@escola.pr.gov.br
 
 
-![image](https://github.com/RenataJussen/RenataJussen/assets/143616200/834c26d7-2e44-4c4c-946a-618ec5b0a337)
+![](https://tenor.com/pt-BR/view/care-bare-pink-hearts-gif-18264274)
